@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on projects 
 - 📫 How to reach me noefunes51@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I'm at the college 
+- ⚡ Fun fact: I'm at the university 
 - 🐈‍⬛ Thank you for being here!
